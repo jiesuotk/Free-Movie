@@ -20,6 +20,10 @@ https://apps.apple.com/cn/app/%E7%9A%AE%E7%9A%AE%E8%A1%A3%E6%9F%9C/id1620573804
 IOS伪装上架，变身说明：首次打开在右上角设置昵称“探索星空”，重启OK
 https://apps.apple.com/cn/app/%E6%98%9F%E7%A9%BA%E7%82%B9%E7%82%B9/id1615174919
 
+### 最大影视
+IOS伪装上架
+https://apps.apple.com/cn/app/%E9%BB%84%E7%B2%B1%E5%8A%A9%E6%A2%A6/id1610509974
+
 ### 高清影视A
 IOS伪装上架，变身说明：首次使用VPN打开，关闭VPN重启OK
 https://apps.apple.com/cn/app/%E9%9D%92%E6%A9%99%E8%AE%B0%E5%BD%95/id1618637388
