@@ -32,16 +32,57 @@ https://apps.apple.com/cn/app/%E9%9D%92%E6%A9%99%E8%AE%B0%E5%BD%95/id1618637388
 IOS伪装上架，变身说明：首次打开在0.00位置点三次，重启OK
 https://apps.apple.com/cn/app/%E7%BD%91%E6%A0%BC%E8%AE%A1%E7%AE%97%E5%99%A8/id1622140595
 
+### 香瓜影视 
+变身方法：右下角➕号--->艺人名字输入“芝麻开门”，其他随意，重启APP即可自动变身
+https://apps.apple.com/cn/app/id1606748715
+
+
 ### 其它在线观看的影视网站
 
-https://www.tqyy.net/dy/
+鸭奈飞电影<br>
+https://yanetflix.com<br>
+HOHO TV<br>
+https://hoho.tv<br>
+天狼影院<br>
+https://m.tqyy.net<br>
+粤剧屋<br>
+http://yuejuwu.com<br>
+电影狗搜索：<br>
+https://www.dianyinggou.com<br>
+剧嗨：<br>
+https://www.juhi.cc<br>
+努努影院：<br>
+https://www.nnyy6.top<br>
+蛋蛋赞影院：<br>
+https://www.dandanzan10.top<br>
+简影：<br>
+https://tv.syrme.top<br>
+奈飞中文电影站：<br>
+https://yanetflix.com<br>
+奈飞影视：<br>
+https://www.nfyingshi.com<br>
+555电影：<br>
+http://www.o8tv.com<br>
+泥巴影院：<br>
+https://bit.ly/3yCVo8Z <br>
+91日剧<br>
+http://www.wwmulu.com/<br>
+低端影视<br>
+https://ddrk.me/<br>
+xijing美剧<br>
+http://xijing.tv/movie/index<br>
+真不卡<br>
+https://www.zhenbuka5.com/<br>
+独播库<br>
+https://duboku.ru/<br>
+港剧屋<br>
+http://www.gangju5.cc<br>
+TVB云播港剧<br>
+http://www.tvyb02.com/<br>
+努努影院<br>
+https://www.nunuyy1.org/<br>
+哔嘀影视<br>
+https://www.btbdys.com/<br>
+天空影视<br>
+https://www.tkys.tv/<br>
 
-https://m1.mudvod.tv
-
-https://yanetflix.com
-
-https://hoho.tv
-
-https://m.tqyy.net
-
-http://yuejuwu.com
