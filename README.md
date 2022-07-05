@@ -13,29 +13,37 @@
 #### https://qixia.me/index.html?ufacility=pc
 
 ### 佩琪影视
-IOS伪装上架，变身说明：首次打开在反馈输入“犯我中华者虽远必诛”重启OK
-https://apps.apple.com/cn/app/%E7%9A%AE%E7%9A%AE%E8%A1%A3%E6%9F%9C/id1620573804
+IOS伪装上架，变身说明：首次打开在反馈输入“犯我中华者虽远必诛”重启OK<br>
+商店地址https://apps.apple.com/cn/app/%E7%9A%AE%E7%9A%AE%E8%A1%A3%E6%9F%9C/id1620573804
 
 ### 星空影视
-IOS伪装上架，变身说明：首次打开在右上角设置昵称“探索星空”，重启OK
+IOS伪装上架，变身说明：首次打开在右上角设置昵称“探索星空”，重启OK<br>
 https://apps.apple.com/cn/app/%E6%98%9F%E7%A9%BA%E7%82%B9%E7%82%B9/id1615174919
 
 ### 最大影视
-IOS伪装上架
-https://apps.apple.com/cn/app/%E9%BB%84%E7%B2%B1%E5%8A%A9%E6%A2%A6/id1610509974
+IOS伪装上架<br>
+商店地址https://apps.apple.com/cn/app/%E9%BB%84%E7%B2%B1%E5%8A%A9%E6%A2%A6/id1610509974
 
 ### 高清影视A
-IOS伪装上架，变身说明：首次使用VPN打开，关闭VPN重启OK
-https://apps.apple.com/cn/app/%E9%9D%92%E6%A9%99%E8%AE%B0%E5%BD%95/id1618637388
+IOS伪装上架，变身说明：首次使用VPN打开，关闭VPN重启OK<br>
+商店地址https://apps.apple.com/cn/app/%E9%9D%92%E6%A9%99%E8%AE%B0%E5%BD%95/id1618637388
 
 ### 高清影视B
-IOS伪装上架，变身说明：首次打开在0.00位置点三次，重启OK
-https://apps.apple.com/cn/app/%E7%BD%91%E6%A0%BC%E8%AE%A1%E7%AE%97%E5%99%A8/id1622140595
+IOS伪装上架，变身说明：首次打开在0.00位置点三次，重启OK<br>
+商店地址https://apps.apple.com/cn/app/%E7%BD%91%E6%A0%BC%E8%AE%A1%E7%AE%97%E5%99%A8/id1622140595
 
-### 香瓜影视 
-变身方法：右下角➕号--->艺人名字输入“芝麻开门”，其他随意，重启APP即可自动变身
-https://apps.apple.com/cn/app/id1606748715
+### 香瓜影视 <br>
+变身方法：右下角➕号--->艺人名字输入“芝麻开门”，其他随意，重启APP即可自动变身<br>
+商店地址https://apps.apple.com/cn/app/id1606748715
 
+### 黑豹影视 <br>
+变身方法：打开后 杀掉后台重进<br>
+官网http://heib.cc/<br>
+商店地址https://apps.apple.com/cn/app/id1609220688
+
+### 红豆影视 <br>
+变身方法：点击左上角的（记录学校生活）3下，大退软件重新打开即可。<br>
+商店地址https://apps.apple.com/cn/app/%E6%A0%A1%E5%9B%AD%E7%94%9F%E6%B4%BB/id1617408573
 
 ### 其它在线观看的影视网站
 
