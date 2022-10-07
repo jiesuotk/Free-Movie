@@ -79,7 +79,14 @@ App Store 上伪装名字：嘿锋记账 <br>
 #### 阿欧影视：https://apps.apple.com/cn/app/id1602800975 <br>
 --
 ### 其它在线观看的影视网站
-
+追剧也很卷 - FreeOK<br>
+https://www.freeok.vip/
+全网最新高清影视资源在线免费观看 - 热播库<br>
+https://www.reboku.cc/
+voflix HD - 最新好看的电影电视剧免费在线观看<br>
+https://www.voflix.com/
+奈菲影视 – 分享世界的精彩<br>
+https://www.nfyingshi.com/
 鸭奈飞电影<br>
 https://yanetflix.com<br>
 HOHO TV<br>
