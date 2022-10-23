@@ -77,6 +77,45 @@ App Store 上伪装名字：嘿锋记账 <br>
 #### 曲奇影视：https://apps.apple.com/cn/app/id1550930782 <br>
 #### 番茄影视：https://apps.apple.com/cn/app/id1517366584 <br>
 #### 阿欧影视：https://apps.apple.com/cn/app/id1602800975 <br>
+APP影视：https://www.appmovie.cc/
+
+哔嘀影视：https://www.bdys01.com/
+
+看看层：https://www.kankanwu.com/
+
+速影TV：https://xn--p3to79h.xyz/
+
+优片网：http://www.iupian.com/
+
+80S电影：http://www.80smp4.cc/
+
+欧乐影院：https://oulevod.tv/
+
+555电影：https://www.555yy3.com/
+
+胖子电影：https://www.pangzitv.com/
+
+冲TMTV：https://chongtmtv.com/
+
+捷华影视：https://www.jiehua.tv/
+
+优视频：https://www.uvod.tv/
+
+剧嗨：https://www.juhi.cc/
+
+唐人街影院：https://www.tangrenjie.tv/
+
+低端影视：https://ddys2.me/
+
+注视影视：https://gaze.run/
+
+人人影视：https://kuaizi.tv/
+
+影视之家：http://yszjmv.com/
+
+大米星球：https://dmys6.com/
+
+HDmoli：https://www.hdmoli.com/
 --
 ### 其它在线观看的影视网站
 追剧也很卷 - FreeOK<br>
